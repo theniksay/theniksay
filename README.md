@@ -1,4 +1,4 @@
-- hi this is a private project from me and my friends
+- hi i'm theniksay and i'm interessted in coding in gernall
 
 - 
 <!---
